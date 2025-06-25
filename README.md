@@ -14,8 +14,8 @@
 
 📫 How to reach me:  
 - LinkedIn: [linkedin.com/in/sanjana-charles-1324s](https://linkedin.com/in/sanjana-charles-1324s)  
-- Email: (Add your email here)  
-- Portfolio: (Behance link here)  
+- Email: (sanjanacharles1312@gmail.com)  
+- Portfolio: ((https://www.behance.net/sanjanacharles))  
 
 🚀 Open to software development, front-end, and UI/UX roles.
 
